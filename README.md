@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/102920915/233815276-8435e64f-f43a-4b96-bc7a-1f012fccaa43.png)
+![image](https://user-images.githubusercontent.com/102920915/233815408-65d92971-5774-4266-a0d4-0a4debeb33d6.png)
 
 
 # Здравствуйте! Меня зовут Никита.
